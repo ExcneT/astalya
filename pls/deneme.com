@@ -1,1 +1,0 @@
-SA Değerli Astalya sakinleri
